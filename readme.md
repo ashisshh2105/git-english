@@ -1,0 +1,26 @@
+#learn from chai and code 
+wjfnwjfnwjfnfsf
+sg
+gdfsgvdf
+gvv
+dfg
+d
+fgfd
+g
+dfgdf
+gd
+fg
+dfg
+d
+fg
+dfgv
+vwdf
+fgdsg
+hydf
+hfd
+h
+fhjd
+fhfdhjdf
+hdf
+h
+dfh
